@@ -6,4 +6,5 @@
 4. acabar con deathstroke
 5. acabar con deathstroke
 6. conseguir alimentos
+7. proteger las cajas madre
 
