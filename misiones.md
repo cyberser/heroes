@@ -4,3 +4,5 @@
 2. Crear la liga de la justicia
 3. Buscar nuevos miembros
 4. acabar con deathstroke
+5. acabar con deathstroke
+6. conseguir alimentos
