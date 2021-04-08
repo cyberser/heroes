@@ -7,4 +7,4 @@
 5. acabar con deathstroke
 6. conseguir alimentos
 7. proteger las cajas madre
-
+8.Salvar personas secuestradas
