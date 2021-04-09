@@ -4,3 +4,4 @@
 *dessad
 *mr frio
 *black mantha
+*siniestro
